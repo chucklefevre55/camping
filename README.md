@@ -1,4 +1,4 @@
-# camping
+
 
 # How To Go Camping
 
